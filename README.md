@@ -1,1 +1,0 @@
-# brightBtat.github.io
